@@ -1,16 +1,40 @@
-### Hi there 👋
+```
+mat1rus/mat1rus: yeah
+```
 
-<!--
-**mat1rus/mat1rus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://cdn.discordapp.com/emojis/1070639214061953044.gif?size=256&quality=lossless" align="left" width="200" />
+  
 
-Here are some ideas to get you started:
+```
+am matrus
+NaN years old
+kinda lazy ngl
+i code absolutely random things
+when kafif backrooms update
+idk what to put here
+send help
+idk i forgor
+```
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+```
+achievements
+touched grass wth no way
+broke >15 devices
+аыаыаыаыаыаыаыаыаыаыа
+```
+
+```
+social
+discord: no
+telegram: no
+reddit: no
+youtube: no
+guthib: no
+minecraft: no
+real life: no
+no: no
+binary code: 01101110 01101111
+morse code: -. ---
+```
+
+# No one cares tho
