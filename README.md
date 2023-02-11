@@ -3,7 +3,6 @@ mat1rus/mat1rus: yeah
 ```
 
 <img src="https://cdn.discordapp.com/emojis/1070639214061953044.gif?size=256&quality=lossless" align="left" width="200" />
-  
 
 ```
 am matrus
