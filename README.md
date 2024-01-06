@@ -1,6 +1,7 @@
-
+old username: mat1rus
 ```
-mat1rus/mat1rus: yeah
+matt7ress/matt7ress: yeah
+IM MAT NOT MATT SHUT UP uhm.. pwease :3~
 ```
 
 ```
@@ -12,6 +13,7 @@ when kafif backrooms update
 idk what to put here
 send help
 idk i forgor
+gay furry because screw you
 ```
 
 ```
@@ -23,16 +25,18 @@ broke >15 devices
 
 ```
 social
-discord: no
-telegram: no
-reddit: no
-youtube: no
-guthib: no
-minecraft: no
+discord: matt7ress
+telegram: @matt7ress
+reddit: u/matt7ress (i think)
+youtube: @matt7ress (@matt8ress if doesnt work)
+guthib: You spelled it wrong.
+minecraft: i dont play it anymore
 real life: no
-no: no
+no: yes!
 binary code: 01101110 01101111
 morse code: -. ---
+
+gd: Matrus (not matt7ress!! i lost that account)
 ```
 &nbsp;
 &nbsp;
